@@ -8,5 +8,5 @@ This is a blog
 
 ### More Information
 
-LIKE IT OR ELSE
+LIKE.IT.OR.GO.AWAY.   plz!!!
 
